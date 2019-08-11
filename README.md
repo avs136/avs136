@@ -1,4 +1,4 @@
-![LOGO](https://img4.uploadhouse.com/fileuploads/26711/2671125444f03c436557fdf4d79c37d105338010.png)
+![LOGO](https://avs138.xyz/template/nyg19/picture/logo.png)
 # AVS名尤地址发布页
 ### 微信用户和QQ用户请复制到浏览器访问！
 ## 【地址1】：https://avs130.com
